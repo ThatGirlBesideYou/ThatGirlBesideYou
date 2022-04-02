@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ThatGirlBesideYou
+- 👀 I’m interested in gaming, art and anime
+- 🌱 I’m currently learning stuff
+- 💞️ I’m looking to collaborate on nothing tbh(will update it once i want to)
+- 📫 How to reach me use my insta(anushka._.ish)
